@@ -1,1 +1,1 @@
-# GrowLegacy-
+# GrowLegacy
